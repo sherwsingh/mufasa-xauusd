@@ -1,1 +1,1 @@
-# signal lifestyle
+# Signal Lifestyle
